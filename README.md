@@ -1,1 +1,1 @@
-New & Updates personal website
+New & Updated personal website
