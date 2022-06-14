@@ -1,1 +1,1 @@
-New & Updated personal website
+Extremely Laggy, Bad UI
